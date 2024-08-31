@@ -10,7 +10,7 @@ SO THAT I don't have to pay a graphic designer
 
 
  ## Video Link
- [Walkthrough Video]
+ [Walkthrough Video](https://drive.google.com/file/d/1wfEOEYl0jbvGgbyiMXCuBuBo7IW1qlg9/view?usp=drive_link)
 
  ## Description
 
